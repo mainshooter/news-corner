@@ -7,3 +7,5 @@ Damage: http://edition.cnn.com/2017/05/11/politics/boeing-air-force-one-mechanic
 Comey fired: https://www.nytimes.com/2017/05/09/us/politics/james-comey-fired-fbi.html?_r=0
 
 US-China trade agreement: http://www.bbc.com/news/business-39894119
+
+Exams started in the netherlands; Dutch exams on vwo are shit
