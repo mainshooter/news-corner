@@ -1,4 +1,4 @@
-Three mechanics from poiing have caused 4 milion dollars of damage. 
+Three mechanics from Boeing have caused 4 milion dollars of damage. 
 
 The oxygen system in air Force one on one of the 2 aircraft was contaminated while the plane was going under maintenance.
 
