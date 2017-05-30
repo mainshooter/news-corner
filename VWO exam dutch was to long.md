@@ -6,5 +6,8 @@ A lot of students where wurried when they saw that they had to make 40 questions
 had prommist that the examen woud not be to long, this time.
 
 Some teachers also complained. The exam containt a lot of open questions. Students needed to compair diffrent text, wich they didn't practice.
-They also said that the text where on the right level.
+But they also said that the text where on the right level.
 
+Teacher Arnoud Kuijper said that that the open questions caused that there wasn't enough time. And he also had a tip for CITO, to use a spelling checker. In the exam where a lot of spelling errors.
+
+In a live poll after the exam wich 3300 students filled in, said the following. 28% was the examen realy bas, 32% not so well and only 6% said that it went very good.
